@@ -1,2 +1,1 @@
-![image]((https://github.com/erickmachine/meu-portf-lio-/blob/main/aa211f15-4c75-44b2-b22c-689ad4cccca2.jfif))
-
+![image]((https://github.com/user-attachments/assets/9fd28a2a-f7c9-40e3-b2ae-a703833a241e))
